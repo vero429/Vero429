@@ -1,4 +1,4 @@
-# Hi there, I'm Veronica Martinez 👋
+# Hi there, 👋
 <!--
 **vero429/Vero429**
 ## About Me
